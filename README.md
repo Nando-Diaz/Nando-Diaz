@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Jose Fernando Diaz
+👋 Hi, I’m Jose Fernando Diaz
 
